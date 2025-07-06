@@ -1,2 +1,0 @@
-# KushalGowda
-Sence0204
